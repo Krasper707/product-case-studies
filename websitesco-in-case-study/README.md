@@ -5,7 +5,7 @@
 ## 👨‍💻 Author
 **Karthik Murali M**  
 Product Analyst | PM-in-Training  
-[LinkedIn](https://www.linkedin.com/in/karthikmuralim/) | [Medium](https://medium.com/@karthikmuralim69)
+[LinkedIn](https://linkedin.com/in/m-karthik-murali-3007a6293) | [Medium](https://medium.com/@karthikmuralim69)
 
 ---
 
